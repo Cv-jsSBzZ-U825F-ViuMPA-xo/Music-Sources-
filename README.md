@@ -54,8 +54,7 @@ https://soundcloud.com/user-688171120/rough-stone)
 ![1000006083](https://github.com/user-attachments/assets/1b2b6db5-8cd4-4954-a1de-dc7a3c4fe58c)
 
 # Favilla
-[Phase 1 music:](ht![1000006119](https://github.com/user-attachments/assets/2dc73caf-065e-4e28-a573-8d09dc3ebc26)
-tps://soundcloud.com/11vx/rapid)
+[Phase 1 music:](https://soundcloud.com/11vx/rapid)
 
 ![1000006117](https://github.com/user-attachments/assets/e6875666-2536-4a60-8107-12728d59cca2)
 
