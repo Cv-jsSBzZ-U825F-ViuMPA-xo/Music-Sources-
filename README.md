@@ -93,7 +93,9 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 * **Character: *Metal Bat***
 
 Unfortunately, The creator of the music does not have a Soundcloud account.
+
 [Phase 1 music:](https://youtu.be/5jJU-pLjdzc)
-Playlist with all music:
+
+# Playlist with all music:
 
 https://soundcloud.com/testing2255/sets/reaps-sg-official-ost
