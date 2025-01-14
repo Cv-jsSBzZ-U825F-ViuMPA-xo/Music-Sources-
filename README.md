@@ -73,20 +73,20 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 [Phase 1 music:](https://lapfoxarchive.com/albums/For_Crossdressing)
 
 # Purity
-## Character: *Genos*
+***Character: *Genos***
 [Phase 1 music:](https://soundcloud.com/3131m47o/bofu2015ebimayo-goodtek)
 
 # Corruption 
-## Character: *Saitama*
+* **Character: *Saitama***
 [Phase 1 music:](https://m.soundcloud.com/vapor_420/vaporwave-2)
 
 # Chaos 
-## Character: *Garou*
+* **Character: *Garou***
 [Phase 1 music:](https://soundcloud.com/jericos-law/doppelganger)
 
 
 # Divinity
-## Character: *Metal Bat*
+**Character: *Metal Bat***
 
 Unfortunately, The creator of the music does not have a Soundcloud account.
 [Phase 1 music:](https://youtu.be/5jJU-pLjdzc)
