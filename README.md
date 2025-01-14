@@ -72,21 +72,25 @@ this is a long one..
   
 Unfortunately, The creator of the music does not have a Soundcloud account.
 [Phase 1 music:](https://lapfoxarchive.com/albums/For_Crossdressing)
+![1000010474](https://github.com/user-attachments/assets/d3f5ec69-08d6-493a-b141-dfdf4e761b6a)
 
 # Purity
 * **Character: *Genos***
   
 [Phase 1 music:](https://soundcloud.com/3131m47o/bofu2015ebimayo-goodtek)
+![1000010475](https://github.com/user-attachments/assets/7588476d-919f-4397-a131-62534073fb68)
 
 # Corruption 
 * **Character: *Saitama***
   
 [Phase 1 music:](https://m.soundcloud.com/vapor_420/vaporwave-2)
+![1000010476](https://github.com/user-attachments/assets/690c020a-4190-4ef1-ba00-1ee1c1609ab0)
 
 # Chaos 
 * **Character: *Garou***
   
 [Phase 1 music:](https://soundcloud.com/jericos-law/doppelganger)
+![1000010477](https://github.com/user-attachments/assets/72a83ce4-9aa0-473e-a4c0-6f1672d43745)
 
 
 # Divinity
@@ -95,7 +99,9 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 Unfortunately, The creator of the music does not have a Soundcloud account.
 
 [Phase 1 music:](https://youtu.be/5jJU-pLjdzc)
+![1000010478](https://github.com/user-attachments/assets/903ec5e6-c284-47b9-b64c-c4c3e521d78e)
 
 # Playlist with all music:
 
 https://soundcloud.com/testing2255/sets/reaps-sg-official-ost
+![1000010474](https://github.com/user-attachments/assets/d3f5ec69-08d6-493a-b141-dfdf4e761b6a)
