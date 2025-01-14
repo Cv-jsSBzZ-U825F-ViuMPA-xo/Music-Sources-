@@ -64,3 +64,32 @@ https://soundcloud.com/szymon-roganowski/hello-31337)
 # Vexor
 [Phase 1 music:](https://soundcloud.com/yoakemae/ukiyoe-long2018)
 ![1000006119](https://github.com/user-attachments/assets/a2591054-ab23-4cba-bfc1-c929e734ccc2)
+
+# Star Glitcher
+this is a long one..
+# Mayhem
+## Character: *Suiryu*
+Unfortunately, The creator of the music does not have a Soundcloud account.
+[Phase 1 music:](https://lapfoxarchive.com/albums/For_Crossdressing)
+
+# Purity
+## Character: *Genos*
+[Phase 1 music:](https://soundcloud.com/3131m47o/bofu2015ebimayo-goodtek)
+
+# Corruption 
+## Character: *Saitama*
+[Phase 1 music:](https://m.soundcloud.com/vapor_420/vaporwave-2)
+
+# Chaos 
+## Character: *Garou*
+[Phase 1 music:](https://soundcloud.com/jericos-law/doppelganger)
+
+
+# Divinity
+## Character: *Metal Bat*
+
+Unfortunately, The creator of the music does not have a Soundcloud account.
+[Phase 1 music:](https://youtu.be/5jJU-pLjdzc)
+Playlist with all music:
+
+https://soundcloud.com/testing2255/sets/reaps-sg-official-ost
