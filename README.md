@@ -89,6 +89,11 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 [Phase 1 music:](https://m.soundcloud.com/vapor_420/vaporwave-2)
 ![1000010476](https://github.com/user-attachments/assets/690c020a-4190-4ef1-ba00-1ee1c1609ab0)
 
+
+[Phase 2 Music:](https://m.soundcloud.com/ha-iki/camellia-darkness-overload)
+
+![1000015207](https://github.com/user-attachments/assets/bc45b7e4-fe42-4f14-9ae2-b4dbefb5e1a9)
+
 # Chaos 
 * **Character: *Garou***
   
