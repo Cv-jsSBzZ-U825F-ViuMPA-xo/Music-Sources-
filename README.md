@@ -80,8 +80,7 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 [Phase 1 music:](https://soundcloud.com/3131m47o/bofu2015ebimayo-goodtek)
 ![1000010475](https://github.com/user-attachments/assets/7588476d-919f-4397-a131-62534073fb68)
 
-[Phase 2 music:]
-(https://m.soundcloud.com/shadic-the-hedgehog/dollscythe-flashes-extended)
+[Phase 2 music:](https://soundcloud.com/shadic-the-hedgehog/dollscythe-flashes-extended)
 ![1000015202](https://github.com/user-attachments/assets/df2d25fb-570c-421c-ac52-a18686c740e9)
 
 # Corruption 
@@ -104,6 +103,10 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 
 [Phase 1 music:](https://youtu.be/5jJU-pLjdzc)
 ![1000010478](https://github.com/user-attachments/assets/903ec5e6-c284-47b9-b64c-c4c3e521d78e)
+
+[Phase 2 music:](https://soundcloud.com/rolando-cammarano/fallen-shepherd-ft-rabbiton-strings-endymion-long-edit)
+
+![1000015206](https://github.com/user-attachments/assets/92f43c3e-70bc-4d41-b61a-008541561cdd)
 
 # Playlist with all music:
 
