@@ -2,7 +2,7 @@
 
 # APOPHENIA
 * Artist:
-1. * Song Name
+ * Music 
 [Phase 1 music](
 https://soundcloud.com/crxwo/shop_so_20s-1)
 ![1000006053](https://github.com/user-attachments/assets/1ee99db2-e496-4f5e-9fd5-47fc0e9f679f)
