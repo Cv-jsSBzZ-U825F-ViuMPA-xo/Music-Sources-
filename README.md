@@ -175,6 +175,19 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 
 ![1000015206](https://github.com/user-attachments/assets/92f43c3e-70bc-4d41-b61a-008541561cdd)
 
+# CRAZED
+* **Character: *Sonic***
+  * Artist: **wa.**
+* * Title: **Black Lotus**
+  
+ 
+[Phase 1 music:](https://soundcloud.com/uwaaaa/black-lotus)
+
+![1000035827](https://github.com/user-attachments/assets/13605fd7-8f32-45c8-93b1-aa7b4b210362)
+
+[Phase 2 music:](https://soundcloud.com/the-beat-wizard/viva-la-speedcore)
+![1000035841](https://github.com/user-attachments/assets/896a2453-5c2a-4b8f-ae6d-0c911df9f483)
+
 # Equinox
 * **Character: *Atomic Samurai***
   * Artist: **lostlxc3y**
