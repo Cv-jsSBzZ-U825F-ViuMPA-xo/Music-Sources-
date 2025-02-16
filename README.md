@@ -98,6 +98,7 @@ https://soundcloud.com/szymon-roganowski/hello-31337)
 * * Title: **ukiyoe - long ver**
    
 [Phase 1 music:](https://soundcloud.com/yoakemae/ukiyoe-long2018)
+
 ![1000006119](https://github.com/user-attachments/assets/a2591054-ab23-4cba-bfc1-c929e734ccc2)
 
 # Star Glitcher
@@ -110,6 +111,7 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 * * Title: **Shriek**
    
 [Phase 1 music:](https://lapfoxarchive.com/albums/For_Crossdressing)
+
 ![1000010474](https://github.com/user-attachments/assets/d3f5ec69-08d6-493a-b141-dfdf4e761b6a)
 
 # Purity
@@ -118,11 +120,13 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 * * Title: **GOODTEK**
    
 [Phase 1 music:](https://soundcloud.com/3131m47o/bofu2015ebimayo-goodtek)
+
 ![1000010475](https://github.com/user-attachments/assets/7588476d-919f-4397-a131-62534073fb68)
 * Artist: **nil**
 * * Title: **nil**
    
 [Phase 2 music:](https://soundcloud.com/shadic-the-hedgehog/dollscythe-flashes-extended)
+
 ![1000015202](https://github.com/user-attachments/assets/df2d25fb-570c-421c-ac52-a18686c740e9)
 
 # Corruption 
@@ -133,6 +137,7 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 
 
 [Phase 1 music:](https://soundcloud.com/vapor_420/vaporwave-2)
+
 ![1000010476](https://github.com/user-attachments/assets/690c020a-4190-4ef1-ba00-1ee1c1609ab0)
 
 * Artist: **Camellia**
@@ -147,6 +152,7 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 * Artist: **Jericos Law**
 * * Title: **Doppelganger**
 [Phase 1 music:](https://soundcloud.com/jericos-law/doppelganger)
+
 ![1000010477](https://github.com/user-attachments/assets/72a83ce4-9aa0-473e-a4c0-6f1672d43745)
 
 
@@ -157,6 +163,7 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 * Artist: **Xi**
 * * Title: **Halcyon**
 [Phase 1 music:](https://youtu.be/5jJU-pLjdzc)
+
 ![1000010478](https://github.com/user-attachments/assets/903ec5e6-c284-47b9-b64c-c4c3e521d78e)
 * Artist: **Endymion**
 * * Title: **Fallen shephred ft rabbiton strings**
