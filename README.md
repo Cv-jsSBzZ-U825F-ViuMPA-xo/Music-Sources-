@@ -151,6 +151,8 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 
 * Artist: **Jericos Law**
 * * Title: **Doppelganger**
+
+
 [Phase 1 music:](https://soundcloud.com/jericos-law/doppelganger)
 
 ![1000010477](https://github.com/user-attachments/assets/72a83ce4-9aa0-473e-a4c0-6f1672d43745)
@@ -162,6 +164,7 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 Unfortunately, The creator of the music does not have a Soundcloud account.
 * Artist: **Xi**
 * * Title: **Halcyon**
+
 [Phase 1 music:](https://youtu.be/5jJU-pLjdzc)
 
 ![1000010478](https://github.com/user-attachments/assets/903ec5e6-c284-47b9-b64c-c4c3e521d78e)
