@@ -164,10 +164,15 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 
 ![1000015206](https://github.com/user-attachments/assets/92f43c3e-70bc-4d41-b61a-008541561cdd)
 
+# SUBCLASS
+## What is a subclass?
+* Due to TSB lacking enough character's, You can switch subclass to have different movesets on the same character.
 
 # Persistence 
+* **Character: *Garou***
 * Artist: **Aethral**
 * * Title: **Lacrima Elegy**
+
 [Phase 1 music:](https://soundcloud.com/aethral/lacrima-elegy)
 ![1000035822](https://github.com/user-attachments/assets/1fbc02aa-a1e5-488f-98be-64b584869da5)
 
