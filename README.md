@@ -188,7 +188,9 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 
   * Artist: **THE BEAT WIZARD**
 * * Title: **【BOF:TT】¡Viva la SPEEDCORE! / THE BEAT vs THE WIZARD**
+
 [Phase 2 music:](https://soundcloud.com/the-beat-wizard/viva-la-speedcore)
+
 ![1000035841](https://github.com/user-attachments/assets/896a2453-5c2a-4b8f-ae6d-0c911df9f483)
 
 # Equinox
