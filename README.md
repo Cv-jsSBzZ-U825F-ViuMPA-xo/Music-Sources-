@@ -119,8 +119,8 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
    
 [Phase 1 music:](https://soundcloud.com/3131m47o/bofu2015ebimayo-goodtek)
 ![1000010475](https://github.com/user-attachments/assets/7588476d-919f-4397-a131-62534073fb68)
-* Artist: **Dollscythe**
-* * Title: **Flashes**
+* Artist: **nil**
+* * Title: **nil**
    
 [Phase 2 music:](https://soundcloud.com/shadic-the-hedgehog/dollscythe-flashes-extended)
 ![1000015202](https://github.com/user-attachments/assets/df2d25fb-570c-421c-ac52-a18686c740e9)
@@ -163,6 +163,27 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 [Phase 2 music:](https://soundcloud.com/rolando-cammarano/fallen-shepherd-ft-rabbiton-strings-endymion-long-edit)
 
 ![1000015206](https://github.com/user-attachments/assets/92f43c3e-70bc-4d41-b61a-008541561cdd)
+
+# Equinox
+* **Character: *Atomic Samurai***
+  * Artist: **lostlxc3y**
+* * Title: **tears of my loved ones**
+  
+ 
+[Phase 1 music:](https://soundcloud.com/lllssstttlllxxxccc/tears-of-my-loved-ones)
+
+![1000035826](https://github.com/user-attachments/assets/4505fc3a-4166-4180-90d9-fd49c55fdce9)
+
+# The Big Black
+* **Character: *Tatsumaki***
+  * Artist: **The Quick Brown Fox**
+* * Title: **The Big Black**
+
+[Phase 1 music:](https://soundcloud.com/quickbrownfox0/the-big-black)
+
+![1000035829](https://github.com/user-attachments/assets/d11cce45-f051-4bda-81b3-c817a363cd19)
+
+
 
 # SUBCLASS
 ## What is a subclass?
