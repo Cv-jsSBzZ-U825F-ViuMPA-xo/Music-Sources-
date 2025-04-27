@@ -154,6 +154,17 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 
 ![1000010477](https://github.com/user-attachments/assets/72a83ce4-9aa0-473e-a4c0-6f1672d43745)
 
+# ERROR
+* **Character: *Garou***
+
+* Artist: **Sharmdem**
+* * Title: **INSANE**
+
+
+[Phase 2 music:](https://soundcloud.com/shardem/insane)
+
+![1000010477](https://i1.sndcdn.com/artworks-000211773701-4xrsq4-t500x500.jpg)
+
 
 # Divinity
 * **Character: *Metal Bat***
@@ -221,7 +232,124 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 * * Title: **Lacrima Elegy**
 
 [Phase 1 music:](https://soundcloud.com/aethral/lacrima-elegy)
+
 ![1000035822](https://github.com/user-attachments/assets/1fbc02aa-a1e5-488f-98be-64b584869da5)
+
+# Destiny
+* **Character: *Genos***
+* Artist: **Frums**
+* * Title: **Zephrs**
+
+[Phase 1 music:](https://soundcloud.com/frums/zephyrs)
+
+![1000035822](https://i1.sndcdn.com/artworks-000635106763-oil69c-t500x500.jpg)
+
+# Calamity
+* **Character: *Genos***
+* Artist: **Mykoll**
+* * Title: **Nothing Ever Changes**
+
+[Phase 2 music:](https://soundcloud.com/mykoll-934622826/nothing-ever-changes-2)
+
+![1000035822](https://i1.sndcdn.com/artworks-fpcznTlrcEwtEMml-4UEe6A-t500x500.jpg)
+
+
+
+
+
+
+
+# Nuclear
+* **Character: *Metal Bat***
+* Artist: **SPURME**
+* * Title: **Far Away From Empty World**
+
+[Phase 1 music:](https://soundcloud.com/hypercuberecords/spurme-far-away-from-empty)
+
+![1000035822](https://i1.sndcdn.com/artworks-UJJB3K2XHT8RCHdB-8eFtXg-t500x500.jpg)
+
+
+
+
+
+
+
+# Contaminant
+* **Character: *Metal Bat***
+* Artist: **wake forld**
+* * Title: **Some Days, Even Hope**
+
+[Phase 2 music:](https://soundcloud.com/wakeforldmusic/some-days-even-hope)
+
+![1000035822](https://i1.sndcdn.com/artworks-xDCAjUTIeDRmCkhT-nghy9g-t500x500.jpg)
+
+
+
+
+# char
+* **Character: *char***
+* Artist: **artist**
+* * Title: **title**
+
+[Phase 1 music:](bssssss)
+
+![1000035822](bsssssss2)
+
+
+
+
+# char
+* **Character: *char***
+* Artist: **artist**
+* * Title: **title**
+
+[Phase 1 music:](bssssss)
+
+![1000035822](bsssssss2)
+
+
+
+
+# char
+* **Character: *char***
+* Artist: **artist**
+* * Title: **title**
+
+[Phase 1 music:](bssssss)
+
+![1000035822](bsssssss2)
+
+
+
+
+
+# char
+* **Character: *char***
+* Artist: **artist**
+* * Title: **title**
+
+[Phase 1 music:](bssssss)
+
+![1000035822](bsssssss2)
+
+
+
+
+
+# char
+* **Character: *char***
+* Artist: **artist**
+* * Title: **title**
+
+[Phase 1 music:](bssssss)
+
+![1000035822](bsssssss2)
+
+
+
+
+
+
 
 
 # Multiphex
@@ -243,6 +371,7 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 
 
 [Phase 1 music:](https://soundcloud.com/yoho114/oceans-legacy)
+
 ![1000010476](https://i1.sndcdn.com/artworks-lBIhDHjcIzpRvFO6-HdeMCA-t500x500.png)
 # Golden Head
 * **Character: *Atomic***
