@@ -6,6 +6,7 @@
    
 [Phase 1 music](
 https://soundcloud.com/crxwo/shop_so_20s-1)
+
 ![1000006053](https://github.com/user-attachments/assets/1ee99db2-e496-4f5e-9fd5-47fc0e9f679f)
 
 * Artist: **Psyqui**
@@ -13,6 +14,7 @@ https://soundcloud.com/crxwo/shop_so_20s-1)
    
 [Phase 2 music](
 https://soundcloud.com/psyqui/education)
+
 ![1000006054](https://github.com/user-attachments/assets/4e2b7360-b090-421d-aa52-6aff3d149eb4)
 
 # Arcaura
@@ -29,6 +31,7 @@ https://soundcloud.com/nagiha/life-is-kinetics-ravon-edit)
    
 [Phase 2 music:](
 https://soundcloud.com/rushdownrecs/paper-skies-artisan-rebelo)
+
 ![1000006076](https://github.com/user-attachments/assets/b7481572-f7fb-426a-ae06-ba6301fcda0d)
 
 # Volta
@@ -43,6 +46,7 @@ https://soundcloud.com/ardolf_music/terminate)
    
 [Phase 2 music:](
 https://soundcloud.com/ikaruga_nex/frenz2022-iklar-argos)
+
 ![1000006078](https://github.com/user-attachments/assets/1cbfc555-f59b-443c-9f8c-2cc0fbb351a3)
 
 
@@ -52,18 +56,21 @@ https://soundcloud.com/ikaruga_nex/frenz2022-iklar-argos)
    
 [Phase 1 music:](
 https://soundcloud.com/llwll/in-another-life)
+
 ![1000006079](https://github.com/user-attachments/assets/3422d215-1fc6-4b1e-a758-36dadcd0f385)
 * Artist: **Shegunine**
 * * Title: **I see that town**
    
 [Phase 2 music:](
 https://soundcloud.com/shegunine/i-see-that-town)
+
 ![1000006080](https://github.com/user-attachments/assets/b00889c9-08c4-4452-9e59-d68eac035366)
 * Artist: **Thenewlimee**
 * * Title: **Asthetik tonartificiel**
    
 [Mini moveset music:](
 https://soundcloud.com/channel-thenewlimee/asthetik-tonartificiel)
+
 ![1000006081](https://github.com/user-attachments/assets/800055f2-9502-42f8-b658-aeaea07a4028)
 
 # Soul Twins
@@ -71,6 +78,7 @@ https://soundcloud.com/channel-thenewlimee/asthetik-tonartificiel)
 * * Title: **painkiller**
    
 [Lobby Music:](https://soundcloud.com/dendora/painkiller)
+
 ![1000006082](https://github.com/user-attachments/assets/cadfba2e-7757-4b13-ae2e-fb09b544769f)
 * Artist: **?**
 * * Title: **Rough Stone**
