@@ -100,6 +100,7 @@ https://soundcloud.com/user-688171120/rough-stone)
    
 [Phase 2 music:](
 https://soundcloud.com/szymon-roganowski/hello-31337)
+
 ![1000006118](https://github.com/user-attachments/assets/bc78c51e-32c5-417d-a38a-b0f98b6e806d)
 # Vexor
 * Artist: **Yoakemae**
@@ -210,14 +211,6 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 [Phase 2 music:](https://soundcloud.com/the-beat-wizard/viva-la-speedcore)
 
 ![1000035827](https://i1.sndcdn.com/artworks-K0AA6t6paFWCEElz-y0pNcA-t500x500.png)
-
-
-  * Artist: **THE BEAT WIZARD**
-* * Title: **【BOF:TT】¡Viva la SPEEDCORE! / THE BEAT vs THE WIZARD**
-
-[Phase 2 music:](https://soundcloud.com/the-beat-wizard/viva-la-speedcore)
-
-![1000035841](https://github.com/user-attachments/assets/896a2453-5c2a-4b8f-ae6d-0c911df9f483)
 
 # Equinox
 * **Character: *Atomic Samurai***
