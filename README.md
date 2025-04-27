@@ -193,6 +193,16 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 
 ![1000035827](https://github.com/user-attachments/assets/13605fd7-8f32-45c8-93b1-aa7b4b210362)
 
+# INSANE
+* **Character: *Sonic***
+  * Artist: **THE BEAT vs THE WIZARD**
+* * Title: **Viva la SPEEDCORE!**
+  
+ 
+[Phase 2 music:](https://soundcloud.com/the-beat-wizard/viva-la-speedcore)
+
+![1000035827](https://i1.sndcdn.com/artworks-K0AA6t6paFWCEElz-y0pNcA-t500x500.png)
+
 
   * Artist: **THE BEAT WIZARD**
 * * Title: **【BOF:TT】¡Viva la SPEEDCORE! / THE BEAT vs THE WIZARD**
@@ -286,70 +296,42 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 
 
 
-# char
-* **Character: *char***
-* Artist: **artist**
-* * Title: **title**
+# Rainbow
+* **Character: *Sonic***
+* Artist: **siqlo**
+* * Title: **Cyber Dawn**
 
-[Phase 1 music:](bssssss)
+[Phase 1 music:](https://soundcloud.com/siqlo/cyber-dawn)
 
-![1000035822](bsssssss2)
-
-
-
-
-# char
-* **Character: *char***
-* Artist: **artist**
-* * Title: **title**
-
-[Phase 1 music:](bssssss)
-
-![1000035822](bsssssss2)
+![1000035822](https://i1.sndcdn.com/artworks-zROe7hHz8ysh786l-IDCVqg-t500x500.png)
 
 
 
 
-# char
-* **Character: *char***
-* Artist: **artist**
-* * Title: **title**
+# ULTRASONIC
+* **Character: *Sonic***
+* Artist: **Ras**
+* * Title: **JUGGLE**
 
-[Phase 1 music:](bssssss)
+[Phase 2 music:](https://soundcloud.com/ras-11/ras-juggle)
 
-![1000035822](bsssssss2)
-
-
-
-
-
-# char
-* **Character: *char***
-* Artist: **artist**
-* * Title: **title**
-
-[Phase 1 music:](bssssss)
-
-![1000035822](bsssssss2)
+![1000035822](https://i1.sndcdn.com/avatars-000082617045-3elp31-t500x500.jpg)
 
 
 
 
+# Violence
+* **Character: *Metal Bat***
+* Artist: **Akiri**
+* * Title: **The Wandering Beast**
 
-# char
-* **Character: *char***
-* Artist: **artist**
-* * Title: **title**
+[Phase 1 music:](https://soundcloud.com/akiwimoosic/the-wandering-beast)
 
-[Phase 1 music:](bssssss)
+![1000035822](https://i1.sndcdn.com/artworks-iendNvYzzGy3ZwiZ-tx7spA-t500x500.jpg)
 
-![1000035822](bsssssss2)
+https://soundcloud.com/testing2255/sets/reaps-sg-official-ost
 
-
-
-
-
-
+![1000010474](https://github.com/user-attachments/assets/d3f5ec69-08d6-493a-b141-dfdf4e761b6a)
 
 
 # Multiphex
@@ -385,5 +367,4 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 
 # Playlist with all music:
 
-https://soundcloud.com/testing2255/sets/reaps-sg-official-ost
-![1000010474](https://github.com/user-attachments/assets/d3f5ec69-08d6-493a-b141-dfdf4e761b6a)
+
