@@ -122,10 +122,7 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 [Phase 1 music:](https://soundcloud.com/3131m47o/bofu2015ebimayo-goodtek)
 
 ![1000010475](https://github.com/user-attachments/assets/7588476d-919f-4397-a131-62534073fb68)
-* Artist: **nil**
-* * Title: **nil**
-   
-[Phase 2 music:](https://soundcloud.com/shadic-the-hedgehog/dollscythe-flashes-extended)
+
 
 ![1000015202](https://github.com/user-attachments/assets/df2d25fb-570c-421c-ac52-a18686c740e9)
 
@@ -225,6 +222,37 @@ Unfortunately, The creator of the music does not have a Soundcloud account.
 
 [Phase 1 music:](https://soundcloud.com/aethral/lacrima-elegy)
 ![1000035822](https://github.com/user-attachments/assets/1fbc02aa-a1e5-488f-98be-64b584869da5)
+
+
+# Multiphex
+* **Character: *Suiryu***
+
+* Artist: **nfract**
+* * Title: **Hikikomori Condition**
+
+
+[Phase 1 music:](https://soundcloud.com/nfract/hikikomori-condition)
+
+![1000010476](https://i1.sndcdn.com/artworks-lntpCyRQMSsZ3yDJ-zNUR8Q-t500x500.jpg)
+
+# Golden Head
+* **Character: *Atomic***
+
+* Artist: **Yoho**
+* * Title: **Oceans Legacy**
+
+
+[Phase 1 music:](https://soundcloud.com/yoho114/oceans-legacy)
+![1000010476](https://i1.sndcdn.com/artworks-lBIhDHjcIzpRvFO6-HdeMCA-t500x500.png)
+# Golden Head
+* **Character: *Atomic***
+
+* Artist: **halospit**
+* * Title: **anyway**
+
+[Variant 2 music:](https://soundcloud.com/halospit/anyway)
+
+![1000010476](https://i1.sndcdn.com/artworks-TCkNwbmAzzztLFuM-F1KQow-t500x500.jpg)
 
 # Playlist with all music:
 
