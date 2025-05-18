@@ -372,7 +372,7 @@ https://soundcloud.com/testing2255/sets/reaps-sg-official-ost
 * Artist: **nacho**
 * * Title: **fading memories**
 
-[Variant 2 music:](https://soundcloud.com/pww1e/fading-memories)
+[Phase 1 music:](https://soundcloud.com/pww1e/fading-memories)
 
 ![1000010476](https://i1.sndcdn.com/artworks-x26dUWjQQZNSvxlr-LIRjow-t500x500.jpg)
 
