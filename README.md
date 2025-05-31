@@ -377,3 +377,28 @@ https://soundcloud.com/testing2255/sets/reaps-sg-official-ost
 ![1000010476](https://i1.sndcdn.com/artworks-x26dUWjQQZNSvxlr-LIRjow-t500x500.jpg)
 
 
+# Sion Eltnam Atlasia
+* **Character: *Sonic***
+
+* Artist: **Ratio**
+* * Title: **Blood Drain - Again**
+
+[Phase 1 music:](https://soundcloud.com/user-65687376/under-night-in-birth-ost-blood-drain-again-eltnums-theme)
+
+ ( THERE IS NO ORIGINAL LINK! )
+ 
+![1000010476](https://i1.sndcdn.com/artworks-000192710708-chebjb-t500x500.jpg)
+
+
+
+# Akiha Vermillion
+* **Character: *MONSTER FORM GAROU***
+
+* Artist: **dssctveself**
+* * Title: **how do you explain to someone how you feel, when everyday you feel like someone different**
+
+[Phase 1 music:](https://soundcloud.com/dssctveself/how-do-you-explain-to-someone-how-you-feel-when-everyday-you-feel-like-someone-different)
+
+![1000010476](https://i1.sndcdn.com/artworks-S8TLCwlxWuJIemEv-GkzYAw-t500x500.png)
+
+
