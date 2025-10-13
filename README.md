@@ -402,3 +402,15 @@ https://soundcloud.com/testing2255/sets/reaps-sg-official-ost
 ![1000010476](https://i1.sndcdn.com/artworks-S8TLCwlxWuJIemEv-GkzYAw-t500x500.png)
 
 
+
+# ARCAURA REWORK
+* **Character: *GAROU***
+
+* Artist: **Spade**
+* * Title: **Valley Of Stars 2**
+
+[Phase 1 music:](https://soundcloud.com/astrlprod/valley-of-stars-2)
+
+![1000010476](https://i1.sndcdn.com/artworks-VhCN9cAZ7D06jHFQ-FFDrLw-t500x500.jpg)
+
+
