@@ -1,4 +1,4 @@
-
+<img width="512" height="512" alt="image" src="https://github.com/user-attachments/assets/6101a4e7-464d-425c-b82d-f9a6191d3902" />
 
 # APOPHENIA
 * Artist: **crxw**
@@ -401,6 +401,22 @@ https://soundcloud.com/testing2255/sets/reaps-sg-official-ost
 
 ![1000010476](https://i1.sndcdn.com/artworks-S8TLCwlxWuJIemEv-GkzYAw-t500x500.png)
 
+# Sans
+* **Character: *MONSTER FORM GAROU***
+
+* Artist: **ace7889**
+* * Title: **M. E. G. A. L. O. V. A. N. I. A**
+
+[Phase 1 music:](https://soundcloud.com/ace7889/m-e-g-a-l-o-v-a-n-i-a)
+
+![1000010476](https://i1.sndcdn.com/artworks-ImvBJB5fPACiiwDc-gCX5hQ-t500x500.jpg)
+
+* Artist: **Sydosys**
+* * Title: **2KYPHOS**
+
+[Phase 2 music:](https://soundcloud.com/sydosys/2kyphos)
+
+![1000010476](https://i1.sndcdn.com/artworks-Wszv5lfTaVAvMDKA-Ldp6kQ-t500x500.jpg)
 
 
 # ARCAURA REWORK
