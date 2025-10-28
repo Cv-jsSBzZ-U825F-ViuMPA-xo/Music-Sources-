@@ -1,4 +1,3 @@
-<img width="512" height="512" alt="image" src="https://github.com/user-attachments/assets/6101a4e7-464d-425c-b82d-f9a6191d3902" />
 
 # APOPHENIA
 * Artist: **crxw**
